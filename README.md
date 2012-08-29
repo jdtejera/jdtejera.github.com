@@ -1,2 +1,0 @@
-jdtejera.github.com
-===================
